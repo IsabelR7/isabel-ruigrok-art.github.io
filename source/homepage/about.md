@@ -1,12 +1,7 @@
-My name is Isabel Ruigrok and I am an artist based in The Netherlands.
-I am eighteen years old and currently in my second year of studying at HKU Fine Art.
+Als kunstenaar ben ik een tijdreiziger die inspiratie uit het verleden meeneemt naar ons huidige leven. Met mijn kunst haal ik elementen uit de eeuwenoude spiritualiteit, kennis en ambachten. De thematiek die terugkomt in mijn schilderijen en sculpturen zijn: mythes, bijbelse verhalen, natuur en dromen.
 
-I like painting with loose dancing brush strokes and imagining the world of the painting I'm working on.
-I like when things have stories, and where craftsmanship tells them.
+Ik schilder graag met losse, dansende penseelstreken en beeld me de wereld van het schilderij in waar ik aan werk. Ik vind het belangrijk dat dingen verhalen krijgen en dat vakmanschap ze vertelt. 
 
-I see Nature as something above me, as it can reflect the ancient times I've never lived.
-I love to incorporate this feeling in my work through dramatic landscapes and clothing or figures from other time periods.
+Via schilderijen en sculpturen wil ik de toeschouwer verhalen vertellen die ik zelf niet kan verwoorden. Verhalen gebaseerd op mythes, bijbelse verhalen, of mijn eigen dromen en verlangens. Ik ben gefascineerd met de mens in verhouding met de natuur, en met ons leven in verhouding tot elkaar. Kunst is voor mij een middel wat ik bijna als heilig beschouw. Waarbij ik als kunstenaar volledig wordt bestuurd door deze energie die wij inspiratie/passie noemen. Mijn ideeën zijn niet meer mijn eigen en mijn handen lijken niet meer de mijne. Bestuurd door iets wat ik niet kan vatten, behalve het resultaat, het kunstwerk, is er niks van bewijs.
 
-This summer I won pre-selections for Kunstbende South Holland, an art event for young creators.
-This means I will be exhibiting my work at the Kunstbende finals on 30 september 2023 at De Melkweg in Amsterdam.
-You can buy your tickets to see me and my work [here](https://shop.ikbenaanwezig.nl/tickets/event/kunstbende-young-creators-festival-2-30-09-2023).
+Isabel Ruigrok
